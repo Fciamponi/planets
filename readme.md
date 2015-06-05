@@ -1,9 +1,5 @@
 # Demo session of Git
 
-HUEHUEHUEHUEHUE BRBRBRBR
+No no... Mr. Dracula no home.
 
-lalalalalALALaLaLA
-
-XD
-
-ZUERA!!!
+Me Igor... me take care of lab.
